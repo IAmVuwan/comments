@@ -1,1 +1,1 @@
-# [backendj.dev](https://backendj.dev)
+# [bhuwanupadhyay.com](https://bhuwanupadhyay.com)
